@@ -1,2 +1,2 @@
-哈哈哈哈哈哈哈
-呵呵呵呵呵呵呵
+This is a game designed by OzG.
+Let's have amazing fun!
